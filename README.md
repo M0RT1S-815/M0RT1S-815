@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @M0RT1S-815
+- 👀 I’m interested in C#, CSS, Lua and much more
+- 🌱 I’m currently learning so i need maybe a bit more help as i think ^^
+- 💞️ I’m looking to collaborate on RedM, FiveM and Ready or Not
+- 📫 How to reach me at Discord : M0RT1S-815#7655
